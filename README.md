@@ -6,3 +6,4 @@ melhor eh one piece/
 oi aqui eh ?? /
 titans eh melhor /
 one punch nao tem pra ninguem /
+nada a ver re:zero top
